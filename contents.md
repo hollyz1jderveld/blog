@@ -1,1 +1,1 @@
-- hello beep beep juice
+03-02-2024 (first-blog-post)[https://hollyz1jderveld.github.io/blog/first-blog-post]
