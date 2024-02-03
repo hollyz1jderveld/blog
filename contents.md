@@ -1,1 +1,1 @@
-03-02-2024 [first-blog-post](https://hollyz1jderveld.github.io/blog/first_blog_post)
+03-02-2024 [first_blog_post](https://hollyz1jderveld.github.io/blog/pages/first_blog_post)
