@@ -1,3 +1,5 @@
+[back_home](https://hollyz1jderveld.github.io)
+
 03-02-2024 [first_blog_post](https://hollyz1jderveld.github.io/blog/pages/first_blog_post)
 
 08-02-2024 [reuniting_with_old_technologies](https://hollyz1jderveld.github.io/blog/pages/old_technologies)
