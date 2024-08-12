@@ -1,0 +1,24 @@
+### Holly's guide to coffee in Leiden!
+- This week, I've been living in Leiden for three years. I've been drinking coffee for just over two of those! In those two years, I've not really been a 'rely on coffee' person, instead just drinking coffee for fun. I find the taste delicious, especially a good cortado or filter coffee. I really love it! There are quite a lot of places in Leiden which I really enjoy. I thought I would list them here (in no particular order), alongside the reasons I think are best to visit them and the things I like to get. If you live in Leiden, or if you're ever visiting, then get a coffee at one of these spots!
+-
+- #### Coffee Star
+- ###### Nieuwstraat 4, 2312 KB Leiden
+- Coffee Star is the café attached to Leiden's public library, the *Bibliotheek plus Cultuur* (BplusC). Unsurprisingly, this café is an excellent place to set up with your laptop and a coffee! The coffee is standard put consistently good, and they have a rotating menu of special drinks (flavoured lattes, matchas, ice teas) which are really good! Usually, though, I get an oat milk cappuccino.
+- The real great thing about Coffee Star, besides from the cozy library vibes, is the food! The tostis are solid, well priced, and come with a variety of fillings, the usually vegan *broodje v/d maand* is always delicious, and the cheesecake... wow, the cheesecake! It's certainly my favourite in Leiden, it's really simple but really, really delicious. I'd recommend Coffee Star for a work day with a friend, with a delicious lunch or snack!
+-
+- #### I Scream Café
+- ###### Nieuwstraat 13-15, 2312 KA Leiden
+- Speaking of another great place to work, and another institution on the Nieuwstraat, I Scream Café provides a wonderful place to drink some more specialty coffee in a community co-working vibe. The café has many regulars and for good reason, the coffee is great! The cold brew is one of my favourites, and they often have different roasts for the cold brew. Oat milk is the standard milk here, and there are plenty of vegan options which are delicious for non-vegans too (like a vegan *ham kaas croissant* and vegan tostis). I Scream Café is great for a quick coffee or a work session.
+- #### Borgman & Borgman
+- ###### Nieuwe Rijn 41, 2312 JG Leiden
+- I only recently started to visit this Scandinavian-inspired staple of the city centre, but it has quickly become a staple of my coffee visiting circuit! The coffee here tastes amazing, and I have so many recommendations. The filter, where you can choose different beans and roasts, the cortado in a cute little glass cup, the yuzu iced coffee, and the iced latte are all beautiful drinks! Really, anything you choose will be really class in taste.
+- Borgman & Borgman is also great for a lunch. It can be a bit pricey, but I really believe that the money goes into quality ingredients like bread from the local French bakery, green asparagus, and really good miso butter. Some standouts from the menu that I've had are the tosti miso (which has a delicious honey glaze and gochujang mayo), the paneervich eggs, and the burrata with asparagus, peas and mint. The baked goods I've had are also very solid. It's a great place to get a lunch on the terrace with a friend!
+- #### Chummy Coffee
+- ###### Breestraat 97, 2311 CK Leiden
+- Don't hate me, but I think that Chummy has the best specialty coffee in Leiden. A strict laptop/tablet free environment, Chummy Coffee is a great place to get a fun coffee, tea, or lemonade with a friend with little distraction. The drinks are all made with a lot of care, which can be seen with the special apparatus for each drink! There's a great little terrace going into the Peiterskwartier, which is wonderful for a sunny day when lots of people are out and about.
+- In terms of hot drinks, the variety of flavoured hot chocolates and hot milky coffees are really sweet and delicious. In the summer, I'd recommend the lemonades, the coffee cocktails, and especially both of the nitro coffees as they're only available in the summer. Both the regular nitro coffee and the Coco Loco (with coconut milk) are so refreshing and light on a hot summers day. The small variety of freshly baked goods are also great, I especially like the *boterkoek* and the fudgy chocolate slice!
+- #### 't Supperhuisje
+-
+- #### VRIJ
+- #### Darras Coffee Roasters
+-
