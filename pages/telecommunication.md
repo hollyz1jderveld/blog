@@ -1,0 +1,6 @@
+## Stamp collection on (tele)communication and information technologies
+
+Here it is... the piece de resistance! This is my proudest collection, and the one that I am most actively building. This collection aims to explore the history of (tele)communication and information technologies, as well as implicitly looking at the changes in subjects which postal organisations choose to put on their stamps. It's sorted into different technologies and themes, and hopefully will grow quite substantially over time in each theme!
+
+### Libraries
+https://i.colnect.net/f/174/555/International-Year-of-the-Child.jpg
