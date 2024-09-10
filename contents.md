@@ -9,3 +9,5 @@
   12-08-2024 [olympic_stamp_collection](https://hollyz1jderveld.github.io/blog/pages/olympics)
   
   10-09-2024 [academic_endeavors_archive:_ the_care_of_an_au_pair](https://hollyz1jderveld.github.io/blog/plages/before_aupairs)
+
+  10-09-2024 [(tele)communication_stamp_collection](https://hollyz1jderveld.github.io/blog/pages/telecommunication)
