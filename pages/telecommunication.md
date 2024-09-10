@@ -8,7 +8,7 @@ Here it is... the piece de resistance! This is my proudest collection, and the o
 
 ### Postal processes
 
-[Railway Mail-sorting Van, Spain, 1976](https://i.colnect.net/f/650/587/Railway-Mail-sorting-Van.jpg)
-[Automatic Letter Sorting Equipment, Spain, 1976](https://i.colnect.net/f/470/931/Automatic-Letter-Sorting-Equipment.jpg)
-[Manual and automatic mail sorting, Portugal, 1983](https://i.colnect.net/f/175/722/Manual-and-automatic-mail-sorting.jpg)
-
+[Railway Mail-sorting Van, Spain, 1976](https://i.colnect.net/f/650/587/Railway-Mail-sorting-Van.jpg) / 
+[Automatic Letter Sorting Equipment, Spain, 1976](https://i.colnect.net/f/470/931/Automatic-Letter-Sorting-Equipment.jpg) / 
+[Manual and automatic mail sorting, Portugal, 1983](https://i.colnect.net/f/175/722/Manual-and-automatic-mail-sorting.jpg) / 
+[Railway Mailcar, Switzerland, 1986](https://i.colnect.net/f/140/912/Railway-Mailcar.jpg) / 
