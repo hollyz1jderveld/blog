@@ -1,0 +1,3 @@
+#### Before in academic endeavors: Master's research 2024-2025
+
+10-09-2024 I have just started my master in Global Ethnography! Over the summer, I became more and more interested in STS, and the ways in which it relates to my own life and interests. Primarily, knitting! Right now, I am planning a research project to look at the relationship between people and the knitting machines that they work on, and how this relationship may or may not encourage thinking about the history of knitting/computing, stereotypes around knitting/computing, and community connections. I'm in the very early stages right now, but if you want to talk about it with me then please, I'd love to!!

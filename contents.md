@@ -1,5 +1,7 @@
 - [back_home](https://hollyz1jderveld.github.io)
 
+  19-10-2024 [academic_endeavours_archive:_master's_research_2024-2025](https://hollyz1jderveld.github.io/blog/pages/before_masters)
+  
   14-10-2024 [bsc_graduation](https://hollyz1jderveld.github.io/blog/pages/bsc_graduation)
 
   10-09-2024 [(tele)communication_stamp_collection](https://hollyz1jderveld.github.io/blog/pages/telecommunication)
