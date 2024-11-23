@@ -1,0 +1,3 @@
+#### Before in academic endeavors: Automath Archive
+
+02-10-2024 Alongside Rodrigo Ochigame, I am currently researching the history of (one of) the first automatic proof checkers, called Automath. It was developed from the late 1960s - early 1980s by a mathematician named N. G. de Bruijn. We're in the very early stages of this more exploratory research, as we are putting out feelers and getting an overview of what the archive situation looks like. Ideally, however, we'd like to learn more about the projects' link to mathematical philosophies such as intuitionism, and about hidden labour that may have taken place during the creation of the project. I'm really excited to get more into this project & see where it takes me!

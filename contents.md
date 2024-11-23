@@ -1,5 +1,7 @@
 - [back_home](https://hollyz1jderveld.github.io)
 
+  23-11-2024 [academic_endeavors_archive:_automath_archive](https://hollyz1jderveld.github.io/blog/pages/before_automath)
+
   26-10-2024 [alice_and_eve_2024](https://hollyz1jderveld.github.io/blog/pages/aae_2024)
   
   19-10-2024 [academic_endeavours_archive:_master's_research_2024-2025](https://hollyz1jderveld.github.io/blog/pages/before_masters)
