@@ -1,5 +1,9 @@
 - [back_home](https://hollyz1jderveld.github.io)
 
+  31-03-2025 [academic_endeavors_archive:_bsc_thesis](https://hollyz1jderveld.github.io/blog/pages/before_bsc)
+
+09-11-2024 Davecat, who I interviewed for the thesis, recently wrote some of his thoughts about my thesis on his blog! You can read it [here](http://www.kuroneko-chan.com/echoes/?p=6748), and I'd reccomend reading some of his other blog posts too!
+
   23-11-2024 [academic_endeavors_archive:_automath_archive](https://hollyz1jderveld.github.io/blog/pages/before_automath)
 
   26-10-2024 [alice_and_eve_2024](https://hollyz1jderveld.github.io/blog/pages/aae_2024)
